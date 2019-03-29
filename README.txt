@@ -1,0 +1,2 @@
+Je pense pas encore un dev assez compétent pour bosser chez Facebook, maiiiiiiiiiiiis ça va
+Et je sais que j’aurais pu m’appliquer sur la structuration maiiiiiiiiiiiis en vraie avoué on y vois que du feu
